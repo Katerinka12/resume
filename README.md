@@ -1,1 +1,1 @@
-# resume
+Junior Frontend Kuzmenko Kateryna
